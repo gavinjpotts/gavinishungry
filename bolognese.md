@@ -1,4 +1,4 @@
-# Bolognese Sauce
+# Pressure Cooker Bolognese Sauce
 ## Ingredients
 - 3/4 teaspoon baking soda
 - 2 lbs ground beef
