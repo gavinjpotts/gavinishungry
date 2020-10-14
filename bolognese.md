@@ -2,7 +2,7 @@
 ## Ingredients
 - 3/4 teaspoon baking soda
 - 2 lbs ground beef
-- 1.5 teaspoons kosher salt
+- 1.5 teaspoons kosher salt, plus additional to taste
 - 1 cups chicken stock
 - 2 packets unflavored gelatin
 - 2 Tbsp unsalted butter
@@ -16,7 +16,6 @@
 - 3/4 cup red wine
 - 1/4 cup heavy cream
 - fresh ground pepper
-- kosher salt
 
 ## Directions
 1. Mix baking soda and kosher salt with 2 tablespoons of water, then pour over beef. Mix until combined, then set aside
