@@ -5,7 +5,7 @@
 - 1.5 teaspoons kosher salt, plus additional to taste
 - 1 cups chicken stock
 - 2 packets unflavored gelatin
-- 2 Tbsp unsalted butter
+- 2 tbsp unsalted butter
 - 2 anchovy fillets
 - 1 carrot, diced
 - 1 onion, diced
